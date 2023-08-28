@@ -7,3 +7,4 @@ Flare will now be known as Apollo from now on.
 https://cdn.discordapp.com/attachments/1113668009828040704/1136170251411800184/fortnite-loading-screen-brite-future.png
 Playing Apollo isn't pointless anymore!
 Getting kills/wins now allows you to earn V-Bucks. 
+100
