@@ -8,3 +8,4 @@ https://cdn.discordapp.com/attachments/1113668009828040704/1136170251411800184/f
 Playing Apollo isn't pointless anymore!
 Getting kills/wins now allows you to earn V-Bucks. 
 1
+CID_101_Athena_Commando_M_Stealth
